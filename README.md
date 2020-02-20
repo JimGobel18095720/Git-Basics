@@ -1,2 +1,5 @@
 # Git Basics
- 
+
+##Introductie GitHub
+
+#Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken. Welkom bij mijn repository. Hier kun je alles zien wat ik aan het doen ben. Erg leuk en mooi om dit de gebruiken.
